@@ -1,0 +1,1 @@
+This is my github page for posting some of my work. I post essays which are meant to develop ideas that pop into my mind, and which are in no way meant to be complete, but rather are meant as a means of exploration of topics that I find interesting.
